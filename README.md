@@ -1,2 +1,1 @@
-👋 👀 🌱 💞️ 📫
-    email: conesife@gmail.com
+ 🌱 email: conesife@gmail.com
